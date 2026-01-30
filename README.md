@@ -1,4 +1,12 @@
-## Hi there 👋
+⠀⠀⠀⠀⠀ ⠀![](https://litter.catbox.moe/gejlanh3t1486ysx.png)
+
+# 💬 . — Yap
+# 🌙 . — Offtab / Semi-Afk / Playing
+# ⛔ . — Work • study / Drawing / Fully Afk
+
+— c+h is encouraged unless on dni
+
+⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀![](https://litter.catbox.moe/w8u2tk0bw34k0a51.gif)
 
 <!--
 **IdioticSHdz/IdioticSHdz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
