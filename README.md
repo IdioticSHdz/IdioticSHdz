@@ -2,7 +2,7 @@
 
 # 💬 . — Yap
 # 🌙 . — Offtab / Semi-Afk / Playing
-# ⛔ . — Work • study / Drawing / Fully Afk / Doing Chores 
+# ⛔ . — Work • study / Drawing / Fully Afk • Doing Chores 
 
 — DNI Unless H , M or their friends . Very bad with new people 'n not very social .
 
