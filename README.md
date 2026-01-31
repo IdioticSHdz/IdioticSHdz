@@ -4,7 +4,7 @@
 # 🌙 . — Offtab / Semi-Afk / Playing
 # ⛔ . — Work • study / Drawing / Fully Afk
 
-— c+h is encouraged unless on dni
+— DNI Unless H , M or their friends .
 
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀![](https://litter.catbox.moe/w8u2tk0bw34k0a51.gif)
 
