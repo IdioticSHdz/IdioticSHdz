@@ -4,7 +4,7 @@
 # 🌙 . — Offtab / Semi-Afk / Playing
 # ⛔ . — Work • study / Drawing / Fully Afk • Doing Chores 
 
-— DNI Unless H , M or their friends . Very bad with new people , not very social 'n can get very awkward with me .
+— DNI Unless H , M , K or their friends . Very bad with new people , not very social 'n can get very awkward with me .
 
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀![](https://litter.catbox.moe/w8u2tk0bw34k0a51.gif)
 
