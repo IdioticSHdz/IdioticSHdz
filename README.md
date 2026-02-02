@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀ ⠀![](https://media.discordapp.net/attachments/1066762081359122534/1467683932525957213/0e2d0493-346a-4522-90f6-bb61bfb9b2df.png?ex=698146ad&is=697ff52d&hm=73228dc67a041007c71b24a146178269ea18c403afdd12222904dd21435a8fb1&=&format=webp&quality=lossless&width=445&height=138)
+⠀⠀⠀⠀⠀ ⠀![]()
 
 # 💬 . — Yap
 # 🌙 . — Offtab / Semi-Afk / Playing
