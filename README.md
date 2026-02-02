@@ -1,4 +1,5 @@
-⠀⠀⠀⠀⠀ ⠀![]()
+⠀⠀⠀⠀⠀ ⠀![](https://media.discordapp.net/attachments/1066762081359122534/1467721863462653999/ssstik.io_1769999767871_20260202112208.png?ex=69816a01&is=69801881&hm=eeaba9944dfb2c23136965c34705ce61b5dde53ed9374ab63bbe54b6377c2dfd&=&format=webp&quality=lossless&width=876&height=461)
+)
 
 # 💬 . — Yap
 # 🌙 . — Offtab / Semi-Afk / Playing
