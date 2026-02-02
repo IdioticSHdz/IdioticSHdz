@@ -13,6 +13,8 @@
 
 Omfg i hate working on this shit . 
 
+
+  ![](https://media.discordapp.net/attachments/1066762081359122534/1467505531756482560/Untitled5_20260201210227.png?ex=69814947&is=697ff7c7&hm=585c08b1e9fc4e6a31109d1a2df27370664c886fe1a85e845425948c43d6d6d1&=&format=webp&quality=lossless&width=447&height=233)
 <!--
 **IdioticSHdz/IdioticSHdz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
