@@ -5,6 +5,7 @@
 # ⛔ . — Work • study / Drawing / Fully Afk • Doing Chores 
 
 — DNI Unless H , M , K or their friends . Very bad with new people , not very social 'n can get very awkward with me .
+
 — MIGHT . Might decide to C*H with someone random if i feel like it . Just need the courage .
 
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀![](https://litter.catbox.moe/w8u2tk0bw34k0a51.gif)
