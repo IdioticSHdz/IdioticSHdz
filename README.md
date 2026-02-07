@@ -5,7 +5,7 @@
 # 🌙 . — Offtab / Semi-Afk / Playing
 # ⛔ . — Work • study / Drawing / Fully Afk • Doing Chores 
 
-— DNI Unless H , M , K or their friends . Very bad with new people , not very social 'n can get very awkward with me .
+— DNI Unless H , M , K or their friends . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?). 
 
 — MIGHT . Might decide to C+H with someone random and compliment them if i feel like it . Just need the courage so if i C+H with you or complimented you? Yeah congratulations . 
 
