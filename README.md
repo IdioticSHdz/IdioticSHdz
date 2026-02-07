@@ -1,11 +1,6 @@
 ⠀⠀⠀⠀⠀ ⠀![](https://cdn.discordapp.com/attachments/1066762081359122534/1467725322249306153/Untitled11_20260202113612.png?ex=6986b339&is=698561b9&hm=6b98893c42457dfa0330cdd8d69f02c2b7ef8fde18fbd0b014b20b8fa02569e0)
 
-
-# 💬 . — Yap
-# 🌙 . — Offtab / Semi-Afk / Playing
-# ⛔ . — Work • study / Drawing / Fully Afk • Doing Chores 
-
-— DNI Unless H , M , K or their friends . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?). 
+— DNI Unless M , K or their friends . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?). 
 
 — MIGHT . Might decide to C+H with someone random and compliment them if i feel like it . Just need the courage so if i C+H with you or complimented you? Yeah congratulations . 
 
